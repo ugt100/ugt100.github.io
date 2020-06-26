@@ -9,3 +9,6 @@
   
 > Die meisten Menschen denken hauptsächlich über das nach,
 > was die anderen Menschen über sie denken.
+
+
+<img src="http://zitate.net/~passbild?id=464"/>
